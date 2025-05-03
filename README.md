@@ -1,4 +1,5 @@
-Lista moich najważniejszych osiągnieć w szachach na przestrzeni lat (zaczynając od 2015 roku i pomijając wcześniejsze lata ofraz pomijając "drobniejsze" turnieje i te, o których zapomniałem)
+Lista moich najważniejszych osiągnieć w szachach na przestrzeni lat (zaczynając od 2015 roku i
+pomijając wcześniejsze lata ofraz pomijając "drobniejsze" turnieje i te, o których zapomniałem)
 
 Indywidualne i Drużynowe Mistrzostwa Śląska :
 1)Indywidualne Mistrzostwa Śląska Juniorów w Szachach Klasycznych na 2015 - C11 - 34 miejsce 
