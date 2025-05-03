@@ -62,7 +62,7 @@
 
 
 
-## 🇵🇱 Indywidualne i Drużynowe Mistrzostwa Polski
+## Indywidualne i Drużynowe Mistrzostwa Polski
 
 1. **Mistrzostwa Polski Młodzików w Szachach Szybkich 2015 (C10)** – 68 miejsce  
    [Wyniki](https://www.chessarbiter.com/turnieje/2015/ti_3420/results.html?l=pl&tb=10)
