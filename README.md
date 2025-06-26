@@ -7,7 +7,7 @@
 ##  Indywidualne i Drużynowe Mistrzostwa Śląska
 
 1. **Indywidualne Mistrzostwa Śląska Juniorów w Szachach Klasycznych 2015 (C11)** – 34 miejsce  
-   [Wyniki](https://www.chessarbiter.com/turnieje/2015/ti_2794/results.html?l=pl&tb=14)
+   [Wyniki](https://www.chessarbiter.com/turnieje/2015/ti_2794/results.html?l=pl&tb=14_)
 
 2. **Indywidualne Mistrzostwa Śląska Juniorów w Szachach Szybkich 2015 (C10)** – 13 miejsce  
    [Wyniki](https://www.chessarbiter.com/turnieje/2015/ti_4753/results.html?l=pl&tb=10)
